@@ -1,4 +1,4 @@
-# [Gabriel Roberto] <img src="https://videos.cults3d.com/UtXcB9tdTB0_Ic5qjO7q60FHsQg=/516x516/filters:no_upscale()/https://fbi.cults3d.com/uploaders/17754243/illustration-file/7285398c-149d-434d-8fc2-cc3608dc2f37/High-Res.gif" width="30px">
+# [Gabriel Roberto] <img src="https://videos.cults3d.com/UtXcB9tdTB0_Ic5qjO7q60FHsQg=/516x516/filters:no_upscale()/https://fbi.cults3d.com/uploaders/17754243/illustration-file/7285398c-149d-434d-8fc2-cc3608dc2f37/High-Res.gif" width="100px">
 
 Eu sou <strong>Gabriel Roberto</strong>, <strong>Faça uma breve apresentação aqui</strong> 👨🏻‍💻 
 
